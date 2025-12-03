@@ -8,16 +8,15 @@ Google Drive link
 https://drive.google.com/drive/folders/1JVr1s0fuavwmdeccJYbNnBi7TrWlR0dK?usp=drive_link
 
 
-==============================================================================================================================================================================
+===========================================================================
 
 
 YAT571 Marketing Team Project Presentation
 
 https://www.canva.com/design/DAG3YY5-FpQ/nFWuN6TlHEqTmnRPsBvtqA/edit
 
-https://www.canva.com/design/DAG3YY5-FpQ/nFWuN6TlHEqTmnRPsBvtqA/edit?utm_content=DAG3YY5-FpQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
-==============================================================================================================================================================================
+===========================================================================
 
 YAT578 Graphic Team Project Presentation
 
